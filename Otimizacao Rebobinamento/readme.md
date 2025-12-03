@@ -1,1 +1,1 @@
-[SLIDES Otimizacao Rebobinamento](https://www.canva.com/design/DAG1CRiAINQ/QQeDGGN99qVb8NERqLwNEw/edit?utm_content=DAG1CRiAINQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+![SLIDES Otimizacao Rebobinamento](https://github.com/igarashimassaki/PROJETOS_3EM-P/blob/main/Otimizacao%20Rebobinamento/OTIMIZA%C3%87%C3%83O%20REBOBINAMENTO%20.mp4)
