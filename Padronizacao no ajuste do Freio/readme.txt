@@ -1,1 +1,1 @@
-
+[SLIDES Padronizacao no ajuste do Freio](https://www.canva.com/design/DAG1CRiAINQ/QQeDGGN99qVb8NERqLwNEw/edit?utm_content=DAG1CRiAINQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton&classId=324eb70d-1edc-4a0d-97dd-4c65d3e49735&assignmentId=5d689e2d-ecbd-470f-a6fc-08b94c14b37d&submissionId=80c4a2b9-9748-ade5-b606-f7b8c2ad7c71)
